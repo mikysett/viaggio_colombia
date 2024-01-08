@@ -1,21 +1,35 @@
 # viaggio_colombia
 
-## 19/10/23
+## Giovedì 19/10/23
 
 Laura (Danimarca)
 
 Madrid - Notte in autobus, arrivo di mattina presto, stanco ma non distrutto. In serata ceno solo, insalata, pomodori, pane, tortilla da microonde. Conosciuta incamerata mista, inizia una conversazione fitta in cui progettiamo una serie televisiva: tre stagioni, Colombia, droga ma solo come contesto. Nome provvisorio "The Cooker". Studia geografia e sta facendo un interrail, ma è stanca delle città. Sta pensando di andare in Galizia. La conversazione è divertente e dura ore, andiamo sotto la pioggia in cerca di un bar per fuggire all'ostello, ne troviamo uno con tre teste di toro appese al muro e una foto interessante di un torero incornato nel mentre che infilzava. È solo adesso, seduti, dopo aver ordinato, che ci chiediamo i nostri rispettivi nomi. Serata inaspettatamente divertente.
 
-## 20/10/23 + 21/10/23
+## Venerdì 20/10/23 + Sabato 21/10/23
 
 Aline (Belgio)
 
 Conosciuta appena arrivato in ostello, stessa camerata, con un'irlandese molto gentile ma timidissima. Appena arrivata anche lei a Bogotà. Fumatrice, fumiamo le mie ultime sigarette insieme, poi provo a smettere, lei si rivela di grande supporto. Passiamo venerdì e sabato insieme, andiamo in teleferica sul picco di Montserrat (3.150 metri). Tanta voglia di fumare, una volta persino cedo e le chiedo una sigaretta, lei mi sorride, crede che stia scherzando probabilmente, non me la dà, e io un po' perplesso e un po' vergognoso non la chiedo nuovamente. Aline parte domenica mattina presto per Medellin, dove farà una settimana di corsi di spagnolo prima di continuare il viaggio. Rimarrà svariati mesi in Colombia, abbiamo deciso di provare a rincontrarci se dovesse capitare l'occasione giusta.
 
-## 22/10/23
+## Domenica 22/10/23
 
 Caren (Germania)
 
 Domenica ricambio completo nella mia camerata. Prevedo di passare la giornata da solo, entro in camera dopo aver scalato in una palestra con corda, mangiato in un ristorante in stile coloniale nel centro e passeggiato nel quartiere storico. Tutto sommato, sensazione gradevole. Una voce mi saluta in spagnolo, non capisco da quale letto. È Caren. Giovane, tedesca, ha vissuto sei anni in Spagna, nuota nel mare, le piace la scalata, si occupa di teatro sociale. Le chiedo "do you have a name?" e ridiamo entrambi. In serata ci rivediamo e chiacchieriamo a lungo, lei è qui per una conferenza, poi rimarrà oppure no, vuole darsi tempo e viaggiare. Le ho chiesto il numero, mi piacerebbe molto rivederla.
 
+## Lunedì 23/10/23 - Lunedì 30/10/23
 
+(Cerro Quininì)
+
+Finalmente lascio la città. Direzione una montagna sacra dove mi aspetta il mio primo workaway. Alla stazione degli autobus incontro Nadin, un'altra volontaria italiana che inizierà il mio stesso giorno, simpatica e solare ma un po' stupidella. Scopriamo di aver lavorato nello stesso hotel a distanza di pochi anni, coincidenza incredibile. A metà viaggio incontriamo la terza volontaria, Maeva, francese, in viaggio da più di un anno, appena arrivata dalla Nuova Zelanda. Anche lei simpatica e molto tenera, forse un po' troppo presenti quei modi e tratti caratteriali sgradevoli tipicamente francesi. Arrivati alla casa dopo un'oretta di marcia nella foresta. John, colombiano di Cali, ci accoglie tutti con un abbraccio e un'ottima zuppa calda, che sarà il nostro pasto principale per tutta la settimana. Poi iniziano spiegazioni lunghissime e spesso inutilmente dettagliate e contestualizzate. Dopo cena ci legge le quattordici regole, che lui chiama accordi, lunghissime spiegazioni. Sono l'unico dei quattro a dormire in tenda, vista mozzafiato e rumori notturni ricchissimi. Mi sveglio sempre prima delle sei, sono felice di alzarmi. Le attività iniziano alle sette con yoga, opzionale, alle otto con l'aiuto per la colazione, a turno, e alle nove con la colazione vera e propria.
+L'idea è ripetuta e glorificata di creare una comunità autonoma e specialmente i suoi valori, decantati alquanto piattamente in un mix di misticismo e spiritualità orientali, mi sembrano parole vuote. Ad oggi non esiste niente se non sogni, niente orto biologico, niente volontari permanenti, tutto ridotto al minimo, sembrerebbe principalmente a causa di poca competenza e ancora meno voglia. Niente compost, niente filtraggio dell'acqua piovana, niente energia solare. La regola delle tre ore lavorative al giorno, cinque giorni su sette, si applica anche a John, che però non paga nessun contributo, come invece facciamo noi stranieri. Una delle mie giornate lavorali è stata usata per fare di due secchi rotti uno decente.
+Venerdì mattina presto John parte per fare scorte in città, tornerà solo Domenica. Io dormo poco e male, alle cinque decido di andare in montagna per vedere l'alba dal picco. La manco per dieci minuti, paesaggio splendido, solitudine e sensazione di grande gioia, sul ritorno ascolto musica, corro, adrenalina, felicità e voglia di ballare come sotto effetto di X. Arrivato a casa propongo di scendere giù al villaggio, le ragazze preferiscono non spostarsi, vado solo. Una passeggiata molto piacevole, mi fermo con dei locali a chiacchierare, prendo qualche caffè, rimedio un passaggio in motorino per l'ultimo tratto da un ragazzo chiamato Gabriel, torno a casa alle 5 passate, qui il sole tramonta alle 5 e mezza, in totale avrò fatto più di quindici chilometri. Mi accorgo solo poco prima di dormire che tutte le mie cose restate in tenda sono bagnate a seguito di un acquazzone pomeridiano, i vestiti rimarranno umidi fino al giorno della partenza.
+Grande tempesta di fulmini durante la notte. Ho provato una paura indicibile. Un fulmine è caduto vicinissimo, mandando per aria il sistema elettrico. La mattina la passiamo a lavorare, tagliando legna e montando una motosega. Appena finito, scappo in paese, lasciando le ragazze alle prese col fuoco per cucinare, la cucina elettrica è fuori uso. Ancora lunghe passeggiate, raccolgo l'invito di Gabriel e vado a vedere come tosta e macina il caffè. Torno presto e cuciniamo col fuoco a legna. Una cena tranquilla e tutto sommato gradevole.
+Finalmente arriva Domenica, giorno del ritorno di John. Lo dobbiamo raggiungere in paese per spartirci il carico delle scorte. Io parto in anticipo per poter pranzare in paese e stare un po' solo. Tornati a casa con il carico, ancora niente elettricità, iniziamo a preparare la cena. Io mi occupo del fuoco, John sparisce per lungo tempo dal nostro unico vicino, un vecchietto eremita ex militante delle FARC, credo che ci stiamo a vicenda molto simpatici. Quando la cena è pronta scendo a chiamarlo, dopo aver fumato un po' di marijuana, John afferma di essere in uno stato di trance, e fa rumori e gemiti e pseudoconvulsioni. Mi è così spiacevole che fumo una sigaretta che mi offre il mio amico soldato.
+
+## Lunedì 30/10/23
+
+Verso Suesca
+
+In piedi alle cinque e mezza, alle sei inizia la discesa in villaggio con le ragazze. Prima di partire raccolgo un po' di rosmarino che spero di riuscire a portare in Portogallo come regalo. Viaggio lungo ma senza troppe emozioni, passando per Bogotà ne approfitto per farmi somministrare il vaccino per la febbre gialla. Arrivo al nuovo workaway, casa sito, solo di notte. Mi lascia comunque un'impressione molto gradevole. Grande casa di campagna con molte corti semi-aperte e una bellissima cucina esterna. Mi accoglie Irene, donna piccolina ed energica, molto gentile, e intravedo Simone, una delle due figlie. Cena spartana in cui conosco gli altri volontari: Milan, tedesco, dovrebbe partire l'indomani, e Jocelin e Tayna, coppia di francesi che dovrebbe restare fino a venerdì.
