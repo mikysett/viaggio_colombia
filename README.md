@@ -125,3 +125,30 @@ Abbiamo passato la mattinata a sradicare un canneto invasivo, arrivando a buon p
 Sono le 6e30 di sera e sono già a letto. Leggerò un poco e credo che per le otto, massimo nove, starò già dormendo. Da quando sono in Columbia, dormo e mi sveglio molto presto. Credevo non essere per niente mattutino, mi scopro felice, sveglio e riposato alle 6. Oggi giornata di lavoro onesta, non troppo dura, sarei dovuto partire domani ma rimando almeno fino a sabato. Venerdì andremo a rimuovere un alveare.
 
 ## Mercoledì 22/11/23
+
+Abbiamo raccolto caffè, non molto, quello di qualità più bassa che settimana scorsa abbiamo lasciato. Siamo anche passati per la finca di Don Luis e visto che era ora di pranzo ci siamo fermati a mangiare. Ho conosciuto meglio il volontario canadese, Alex, e incontrato per la prima volta Anna, la volontaria italiana appena arrivata da Bogotà. Nel pomeriggio mi ha colpito come uno schiaffo che l'espressione «lasciami perdere» se usata senza astio e per quello che le parole significano diventa una preghiera legittima, dolce e piena di speranza. Forse le prime volte è stata usata così, peccato la si usi adesso così male.
+
+## Giovedì 23/11/23
+
+L'albero che ci siamo proposti di tagliare ci ha dato molto meno filo da torcere di quanto previsto, soprattutto grazie all'aiuto e agli strumenti indispensabili di Wolf. Abbiamo mangiato degli spaghetti con la zucca molto saporiti per poi metterci in macchina e andare a Cáqueza, dove ci siamo fermati praticamente solo per comprare dei dolci salati buonissimi, fatti con farina di sagù, radice tipica della zona. Lasciato il paese, andiamo verso casa di Wolf, che finalmente vedo anche dall'interno. Costruita con molto cemento, la casa non mi affascina molto, la vista invece è magnifica. Nicola e Wolf sono molto eccitati dal fatto che finalmente potranno giocare a Skat. Gioco di carte tedesco molto complesso, simile in qualche modo alla briscola in 5 siciliana, che si può giocare solo in 3 e che nessuno in queste campagne è interessato ad imparare. Iniziamo alle 5 di pomeriggio e finiamo all'una di notte, su mia richiesta. Sono abbastanza sicuro che gli altri avrebbero potuto andare avanti fino al mattino. Ci aspetta ancora una mezz'ora buona di marcia. Alle 2 di notte finalmente sono nel letto.
+
+## Venerdì 24/11/23
+
+Nicola ha una seconda casa dall'altro lato della foresta, molto bella anche questa ma in qualche modo caduta in disgrazia perché non ancora totalmente finita e perché Nicola cercò, senza successo, di coinvolgere i vicini per farne una ludoteca, uno spazio culturale e sociale. Gli unici abitanti della casa sono insomma 30.000 api, alle quali oggi abbiamo offerto una nuova casa, ancora una volta con l'aiuto indispensabile di Hélver, apicultore di grande esperienza. L'organizzazione delle api e gli alveoli che hanno costruito emanano un'armonia e precisione a dir poco magici. Il lavoro dura qualche ora, dopodiché sulla strada del ritorno succhiamo felici un po' di miele dai pezzetti di cera che non abbiamo potuto ricollocare durante il trasloco.
+
+## Sabato 25/11/23
+
+La frazione del villaggio si riunisce oggi in una riunione ufficiosa per decidere se, o per meglio dire come, destituire l'attuale presidente, giudicato troppo aggressivo verso i rappresentanti delle altre istituzioni. A parte una mezz'ora di chiacchiere politiche la cosa assomiglia molto a una tipica festa campesina: tutti in giardino, tante famiglie e tanti bambini, un calderone gigantesco scaldato da un fuoco a legna ancora più grande, tutti seduti sull'erba, a gruppetti, dove capita, e tutti i maschi pisciando negli aiuole circostanti. E' stato molto bello vedere uno squarcio così autentico della vita dei contadini locali.
+
+## Domenica 26/11/23
+
+Questa domenica ce ne andiamo in un villaggetto a tre ore da qui, per un festival dell'intercambio, dell'artigianato e della guatila. Sembriamo un'allegra combriccola di scolaretti e un poco lo siamo, Nicola, io, Don Luis e due volontari della sua finca. Noi volontari passiamo la giornata stuzzicando a destra e a manca e comprando souvenir mentre Nicola e Don Luis montano uno stand per l'intercambio di semi. Svariati gruppi di ballo folkloristici locali si esibiscono nella piazza principale, in un mix di tradizioni, suoni e colori incantatori. Alcuni produttori di erbe medicinali vendono anche, apertamente e in modo molto professionale, funghi allucinogeni. Ne compro 4 grammi, non sapendo ancora bene quando li prenderò. Domani me ne andrò da Cáqueza e Don Luis mi fa promettere che passerò da lui per un caffè prima di partire.
+
+## Lunedì 27/11/23
+
+La giornata inizia, come promesso, con una visita a Don Luis e un caffè caldo. Mi accompagna anche Nicola, così passiamo un po' di tempo insieme prima degli addìi. In due settimane sento di aver tessuto un rapporto con lui molto intimo e profondo. Ci salutiamo con vari abbracci, senza dirci troppe cose. Prima di prendere l'autobus mi fermo anche da Hélver, per salutarlo e ringraziarlo e per lasciare a Diego, il suo figlio più grande e mio compagno di giochi di questi giorni, un giocattolo comprato alla fiera. Hélver ne approfitta per parlarmi di alcuni terreni in vendita. Io ascolto, questo pensiero mi è già venuto ed è bello vedere che potrebbe concretizzarsi, però voglio aspettare qualche mese per lasciarlo maturare bene prima di raccoglierlo. Il viaggio fino a 
+Villa de Leyva è abbastanza tranquillo. Sull'autobus faccio amicizia con Karen, una giovane colombiana appassionata di lingue straniere. Arrivato in ostello scopro che non ci sono linee dirette da San Gil per la Sierra Nevada del Cocuy, il che rende una mia visita a quella città prima del 2 alquanto quanto complicata. Questo significa che esplorerò di più la regione circostante senza spingermi verso nord. Scopro anche che dal mio nuovo lavoro mi propongono di posticipare l'inizio di un mese, il che mi permetterebbe di allungare il mio soggiorno in Colombia. Mi do qualche giorno per pensarci senza stressarmi.
+
+## Martedì 28/11/23
+
+
