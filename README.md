@@ -207,5 +207,20 @@ Ho dormito due ore, sono distrutto. Arrivo da Mafe e mentre aspettiamo Jorge mi 
 
 ## Martedì 12/12/23
 
+Alle 6:30 sono a Manizales. Per fortuna ho già un ostello dove andare e devo solo prendere il teleferico per arrivarci. Mi sento meglio, ma comunque spossato. L'ostello è stupendo, come la coppia che lo gestisce. Mi butto sul letto e dormo fino a mezzogiorno. Finalmente inizio ad assomigliare ad una persona. Faccio una doccia, la spesa e pranzo. Mi rilasso ancora un'oretta e poi vado alle terme, dove mi lascio galleggiare in svariate piscine. Tornato in ostello preparo la cena mentre ascolto qualche podcast. Mi sembra che stia tornando in forma, sia fisicamente che mentalmente. Ho consumato comunque tre sigarette oggi.
+
+## Mercoledì 13/12/23
+
+Si inizia con una visita ad una hacienda cafetera a gestione familiare. Mi viene a prendere Diana, una simpatica guida turistica e vicina dei proprietari della piantagione in cui andremo. La visita è piacevole e imparo molte cose su come viene prodotto il caffè. Nel primo pomeriggio parto per Salento, dove alle 18:30 incontrerò i miei compagni di scalata per il Tolima. Traffico incredibile a causa di un incidente. Sto per stressarmi, ma poi mi ricordo che non posso farci niente e ci dormo su. Arrivo giusto in tempo, anzi lievemente in ritardo e corro un poco. Saremo una decina a partire, di cui solo una ragazza. Tutti giovani apparentemente in buona forma. I tre con cui chiacchiero hanno tutti già scalato ghiacciai, ceniamo insieme e ci salutiamo abbastanza presto. In ostello i miei compagni di camera sono molto simpatici, così metto in ordine le mie cose ridendo e chiacchierando. Spero che le tre sigarette di oggi siano le ultime, d'altronde dipende solo da me. Sono impaziente di leggere la pagina di domani.
+
+## Giovedì 14/12/23
+
+Ne ho fumate due all'arrivo al rifugio, a 3800, le vendono sfuse. Abbiamo iniziato a camminare alle sei, dopo colazione, sui 2400. I miei compagni sono molto in forma, abbiamo fatto 16 chilometri e solo Leo, biologo francese, dà qualche segno di mal di montagna. Spero che dorma bene e si riprenda domani. Mi sento le gambe abbastanza forti e sono ottimista. Il Tolima e questo gruppo mi piacciono molto. Ho accarezzato un cavallo, qui al rifugio.
+
+## Venerdì 15/12/23
+
+Partiamo con calma alle 9:30. Io ho dormito abbastanza bene ma mi sono svegliato più volte. Portiamo molto più peso a causa del materiale da campeggio per la notte al campo base. A metà cammino Leo, d'accordo con le guide, decide di tornare indietro. Il suo mal di testa è peggiorato e si sente lievemente disorientato. Alle 14:40 arriviamo al campo base, una salita dura ma tutto sommato abbastanza breve. Ci riposiamo, prendiamo foto dei vari picchi e mangiamo. Siamo a 4.470 metri e dormiremo qua. Mi sento in forma e non troppo stanco ma cerco di economizzare tutte le energie possibili per l'ascesa di domani. La sveglia sarà all'1:30 di stanotte per arrivare alla cima verso le sei. Ho paura che la mancanza di sonno mi crei problemi. Ho fumato una sigaretta dopo colazione.
+
+## Sabato 16/12/23
 
 
