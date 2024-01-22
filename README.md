@@ -227,6 +227,23 @@ Riesco a dormire qualche ora, svegliandomi spesso per cambiare posizione. Una vo
 
 ## Domenica 17/12/23
 
+Lasciamo il rifugio alle 8:00, con un'ora di ritardo rispetto ai piani. Ha piovuto tutta la notte e così sappiamo di avere davanti a noi 18 chilometri di discesa nel fango. L'umore è comunque alto e camminiamo rapidi e chiacchieroni. Arriviamo giù per l'una e dopo poco arriva il van a prenderci. Cantiamo felici delle classiche canzoni llanere, che miracolosamente conosco anch'io. Mi sento per qualche minuto colombiano d'adozione. Pranziamo tutti insieme, guide comprese, e ci scambiamo foto e contatti. Torno in ostello a prendere le mie cose, poi due autobus e tre ore per arrivare a Manizales, dove Maria dell'ostello Miraduro Andino mi dà il bentornato. Mangio qualcosa, fumo una sigaretta e con Diana ripasso gli ultimi dettagli per il volo in parapendio di domani.
 
+## Lunedì 18/12/23
+
+Compro frutta e poco più per fare colazione. Preparo le mie cose e parto per il mio primo salto in parapendio. Un'ora e trenta di autobus attraversando valli e colline piene di caffè. Il volo dura mezz'ora più o meno. Alvaro, il mio pilota, sembra esperto e molto simpatico. Mi viene voglia in un futuro di provare anch'io a prendere la patente di volo. Giocare in questo modo col vento mi ricorda la barca a vela, altro sport che mi attira molto. Dopo tutti i discorsi sulla sicurezza, Alvaro mi propone di salire sul tetto della jeep per goderci la strada del ritorno. Ovviamente accetto e per mezz'ora mi tengo saldamente alle sbarre di ferro, cercando di non perdere il cappello e gli occhiali. A Manizales mangio rapido. Saluto Maria in ostello e recupero le mie cose, quindi parto per Medellin. Mentre aspetto il bus fumo una sigaretta, alle 17:30 partiamo, a mezzanotte sono in ostello. L'autista ha passato più tempo in sorpasso sulla corsia opposta che in quella corretta, trattando le moto come moscerini, che si spostino loro se non vogliono ritrovarsi spiaccicati al vetro. Ho provato a vedere se il mio sedile avesse una cintura, ovviamente no, quindi ho chiuso gli occhi e ho dormito il più che potevo. 5% di batteria e un taxi da prendere. Il mio cavo è rotto nel 99% delle posizioni possibili, forse anche il telefono. Domani proverò a cambiare almeno il cavo. Fumo una seconda sigaretta e vado a dormire, penso sempre più al rientro, né triste né felice, seccato che il futuro mi distoga dal presente.
+
+## Martedì 19/12/23
+
+Tour in bicicletta alla scoperta della città. Sulla collina del pueblito paisa, in mezzo agli alberi, seduta sulle scale, una netturbina ricuce un guanto che gli si è rotto. Nel pomeriggio faccio riparare il mio cellulare, che finalmente riesce a caricarsi. Fumo molto e faccio un tatuaggio. Sei sigarette, inizio a sentirmi seriamente in colpa e capisco che fumare mi ha sempre privato del presente, portandomi con la mente a dove e quando fumerò la prossima. Non ho voglia di vivere di nuovo in questo perenne distacco dalla realtà.
+
+## Mercoledì 20/12/23 e Giovedì 21/12/23
+
+7:30, parto per la visita guidata al pegnol di Guatapé. Bus da 40 posti, il vero turismo di massa. Giro noioso e a tratti imbarazzante per quanto aderisce allo stereotipo di quel che credo non dovrebbe mai essere considerato un viaggio. Come ultimo giorno aspettando l'aereo mi sta comunque bene. In aeroporto tutto come al solito. Non mi fanno passare l'accendino e le forbicine, non ci resto troppo male. Sul volo dormo. A Madrid sono i bastoni da trekking a lasciarci le penne. Mi dispiace un po' ma va bene anche questo. Da Madrid a Roma dormo di nuovo e qua credo di aver perso il caricatore, di cui comunque non ho gran bisogno. Arrivo a Salerno verso mezzanotte. Gabriele e Michela sono lì ad aspettarmi, stanchi morti ma comunque sorridenti e pieni di domande. Mi sento felice e a casa. Mi fermo un po' da Gabriele e ci raggiunge anche Francesca. Ritrovo la familiarità di ciò che è da sempre una gioiosa e allo stesso tempo malinconica parte di me. Fumo con loro due sigarette. Non so se saranno le ultime della mia vita, ma sono di sicuro le ultime di questo quaderno di viaggio.
+
+"Essere tutto è essere parte. Vero viaggio è il ritorno." - I reietti dell'altro pianeta.
+
+
+## Annesso - Pensieri nel santuario di Iguaque
 
 
