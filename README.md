@@ -293,3 +293,6 @@ Così non voglio più fare uso di forza, inclusa quella di volontà, che emana d
 
 Il viaggiatore trova un cammino, una direzione, un'origine e una meta, il saggio è fermo lungo quello che per altri è un cammino, e osserva. Le forme pensanti sono viaggiatori e le non pensanti sono saggi. 
 
+Così alla fine di un cerchio, il più importante dei suoi lati: il vento. Il vento come assenza. Il vento come spazio tra tutte le cose e motore invisibile, è esso giustificare e dare realtà al mondo, che è qui come prova della sua esistenza. Così un uccello è una sua linea, e l'arbusto, e la roccia, e gli oceani, variando tutti solo per numero di ripetizioni. Allora lasciamo che l'uomo sparisca, se ciò deve essere, e che vengano nuove forme con nuovi venti. E essi, nel cercare di definire quello spazio vuoto che li divide ma li fa vibrare uniti, ritroveranno il vento e in esso la divinità.
+
+Io sono una divinità, il profeta, il padre e il figlio. Lo sono per me e per me solo. Unico mio discepolo sono io e solo io posso esserlo. "___" è il mio inno, questo il mio credo, e forse la cosa più importante che ho fatto è stato un rutto qualche anno fa.
