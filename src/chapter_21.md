@@ -1,0 +1,4 @@
+## Domenica 12/11/23
+
+Oggi abbiamo avuto in visita un gruppo di una quindicina di bambini. Iniziato la giornata con un poco di manutenzione straordinaria: riparato uno sciacquone col fil di ferro e una panca con un piede rotto. Il resto della mattinata in cucina con Simone, molte risate e poco stress, tutto sulle spalle di Irene, che deve presentare il progetto e organizzare le attività del gruppo. Ho cucinato alla moda colombiana: spaghetti col pollo, aggiungendovi una zucchina grossa quanto una zucca e dalla buccia simile. Nel pomeriggio faccio una passeggiata al negozietto più vicino per comprare delle uova. L'idea è di usare gli spaghetti rimasti per farne una frittata che Simone e Irene potranno portare a Bogotá domani e io mangiare con comodo, senza dover cucinare. Per strada incontro un cavallo e per la prima volta riesco a farlo avvicinare e ad accarezzarlo.
+

@@ -1,0 +1,4 @@
+## Domenica 26/11/23
+
+Questa domenica ce ne andiamo in un villaggetto a tre ore da qui, per un festival dell'intercambio, dell'artigianato e della guatila. Sembriamo un'allegra combriccola di scolaretti e un poco lo siamo, Nicola, io, Don Luis, Alex e Anna. Noi volontari passiamo la giornata stuzzicando a destra e a manca e comprando souvenir mentre Nicola e Don Luis montano uno stand per l'intercambio di semi. Svariati gruppi di ballo folkloristici si esibiscono nella piazza principale, in un mix di tradizioni, suoni e colori incantatori. Alcuni produttori di erbe medicinali vendono anche, apertamente e in modo molto professionale, funghi allucinogeni. Ne compro 4 grammi, non sapendo ancora bene quando li prenderò. Domani me ne andrò da Cáqueza e Don Luis mi fa promettere che passerò da lui per un caffè prima di partire.
+

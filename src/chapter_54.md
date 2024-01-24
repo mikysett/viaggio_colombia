@@ -1,0 +1,4 @@
+## Venerdì 15/12/23
+
+Partiamo con calma alle 9:30. Io ho dormito abbastanza bene ma mi sono svegliato più volte. Portiamo molto più peso a causa del materiale da campeggio per la notte al campo base. A metà cammino Leo, d'accordo con le guide, decide di tornare indietro. Il suo mal di testa è peggiorato e si sente lievemente disorientato. Alle 14:40 arriviamo al campo base, una salita dura ma tutto sommato abbastanza breve. Ci riposiamo, prendiamo foto dei vari picchi e mangiamo. Siamo a 4.470 metri e dormiremo qua. Mi sento in forma e non troppo stanco ma cerco di economizzare tutte le energie possibili per l'ascesa di domani. La sveglia sarà all'1:30 di stanotte per arrivare alla cima verso le sei. Ho paura che la mancanza di sonno mi crei problemi. Ho fumato una sigaretta dopo colazione.
+

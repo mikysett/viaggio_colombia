@@ -1,0 +1,6 @@
+[book]
+authors = ["Michele Sessa"]
+language = "it"
+multilingual = false
+src = "src"
+title = "Viaggio in Colombia"

@@ -1,0 +1,5 @@
+## Venerdì 27/10/23
+
+Stamattina presto John parte per fare scorte in città, tornerà solo Domenica. Io dormo poco e male, alle cinque decido di andare in montagna per vedere l'alba dal picco. La manco per dieci minuti, paesaggio splendido, solitudine e sensazione di grande gioia, sul ritorno ascolto musica, corro, adrenalina, felicità e voglia di ballare come sotto effetto di X. Arrivato a casa propongo di scendere giù al villaggio, le ragazze preferiscono non spostarsi, vado solo. Una passeggiata molto piacevole, mi fermo con dei contadini a chiacchierare, prendo qualche caffè, rimedio un passaggio in motorino per l'ultimo tratto da un ragazzo chiamato Gabriel. Torno a casa alle 5 passate, qui il sole tramonta alle 5 e mezza, in totale avrò fatto più di quindici chilometri. Mi accorgo solo poco prima di dormire che tutte le mie cose restate in tenda sono bagnate a seguito di un acquazzone pomeridiano, i vestiti rimarranno umidi fino al giorno della partenza.
+Grande tempesta di fulmini durante la notte. Ho provato una paura indicibile. Un fulmine è caduto vicinissimo, mandando per aria il sistema elettrico.
+

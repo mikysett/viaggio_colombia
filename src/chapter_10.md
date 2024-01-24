@@ -1,0 +1,4 @@
+## Mercoledì 01/11/23
+
+Giornata piovosa ma non eccessivamente fredda. Ho passato la mattinata a risolvere problemi di matematica con le ragazze, la loro energia e felicità mi contagia. Simone particolarmente non smette quasi mai di parlare, per condividere le sue idee e i suoi pareri, con un certo non so che di timido e umile. Per alcuni aspetti rivedo in lei un me adolescente ansioso di conoscere, condividere e soprattutto parlare. Durante un'oretta in cui non pioveva troppo ho tagliato due arbusti, poi ho fatto un po' di conversazione in inglese con Simone e ne abbiamo approfittato per vedere quali fossero i requisiti per la borsa di studio coreana alla quale vorrebbe accedere. Aiutare, seppur in una parte così insulsa, queste due giovani ragazze a realizzare i propri obiettivi mi rende particolarmente felice. Mi chiedo perché non faccio più spesso cose del genere.
+
